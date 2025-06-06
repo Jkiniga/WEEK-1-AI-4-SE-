@@ -1,0 +1,2 @@
+# WEEK-1-AI-4-SE-
+CRYPTO AI
